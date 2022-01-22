@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @arnaudGourdon
-- 👀 I’m interested in coding and craftmanships 
+- 👀 I’m interested in coding and crafting
 - 🌱 I’m currently learning without limits
 - 💞️ I’m looking to collaborate on everything interesting, specialy for environment or things that help people
 - 📫 How to reach me : I'm behind you 👁
